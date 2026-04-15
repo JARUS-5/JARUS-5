@@ -11,7 +11,7 @@
 
 * Always curious, persistent, and motivated to explore new technologies.
 
-* Love playing games!
+* Love playing League of Legends, Total War - Warhammer 3, Factorio, etc.
 
 <!--
 **JARUS-5/JARUS-5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
